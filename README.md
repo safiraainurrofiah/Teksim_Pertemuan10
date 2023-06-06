@@ -1,0 +1,1 @@
+# Teksim_Pertemuan10
